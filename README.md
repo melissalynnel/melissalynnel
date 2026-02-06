@@ -11,7 +11,3 @@ settle in SF • find the right team • thrive in the bay
 
 ## 🌙 core values 
 gratitude • health • integrity
-<br>
-
-##
-<i>mimic the universe by creating ✩₊˚.⋆☾⋆⁺₊✧</i>
