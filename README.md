@@ -1,4 +1,4 @@
-# Melissa Leavenworth ✨
+# [Melissa Leavenworth ✨](https://melissalynnel.github.io/serenity/)
 
 ## 📙 professional portfolio
 [agentic workflows](https://sfstartuphighlight.substack.com/) • [marketing operations](https://www.notion.so/melissa-leavenworth/Live-Laugh-Denver-Asana-Project-Management-Workflow-Automations-288e8228c7b780f59f46e9302155844b?v=288e8228c7b780418d98000c03e2e0c5&source=copy_link) • [content operations](https://www.notion.so/melissa-leavenworth/Learning-Advantage-eCommerce-Marketing-27be8228c7b781dfbc21fd1f92dd1d5b?v=288e8228c7b780418d98000c03e2e0c5&source=copy_link)
