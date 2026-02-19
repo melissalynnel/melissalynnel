@@ -9,4 +9,4 @@
 settle in SF • find the right team • thrive in the bay
 
 ## 🌙 core values 
-gratitude • health • integrity
+gratitude • integrity • humor
