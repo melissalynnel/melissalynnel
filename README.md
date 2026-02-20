@@ -10,6 +10,3 @@ settle in SF • find the right team • thrive in the bay
 
 ## 🌙 core values 
 gratitude • integrity • humor
-
-
-<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/6SEolIp22t0DzeBfCBo3hr?utm_source=generator" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
