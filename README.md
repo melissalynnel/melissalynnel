@@ -1,6 +1,6 @@
 # [Melissa Leavenworth ✨](https://melissalynnel.github.io/serenity/)
 
-## [🤖 Agentic Job Application Workflow](https://github.com/melissalynnel/honey-bee)
+## [🤖 agentic job application workflow](https://github.com/melissalynnel/honey-bee)
 
 ## [📙 professional portfolio](https://melissalynnel.github.io/serenity/artemis/)
 
