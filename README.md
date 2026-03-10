@@ -11,6 +11,4 @@ settle in SF • find the right team • thrive in the bay
 ## 🌙 core values 
 gratitude • integrity • humor
 
-
-
 ## [🤖 open source agentic job application workflow for your taking](https://github.com/melissalynnel/honey-bee)
