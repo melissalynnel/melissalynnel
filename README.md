@@ -1,5 +1,8 @@
 # [Melissa Leavenworth ✨](https://melissalynnel.github.io/serenity/)
 
+## 🌙 core values 
+gratitude • integrity • humor
+
 ## [📙 professional portfolio](https://melissalynnel.github.io/serenity/artemis/)
 
 ## [🎨 artistic expressions](https://melissalynnel.github.io/serenity/luna/)
@@ -7,8 +10,5 @@
 
 ## 🔮 2026 roadmap 
 settle in SF • find the right team • thrive in the bay
-
-## 🌙 core values 
-gratitude • integrity • humor
 
 ## [🤖 open source agentic job application workflow for your taking](https://github.com/melissalynnel/honey-bee)
