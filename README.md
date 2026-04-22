@@ -3,4 +3,4 @@
 ## 🌙 core values 
 gratitude • integrity • humor
 
-## [☁️ levity] ("https://levity.ltd/")
+## [☁️ levity](https://levity.ltd/)
