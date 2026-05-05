@@ -3,16 +3,17 @@
 ## Core Values 🌙
 integrity • humor • honesty 
 
-## Currently: Find my designs at [Levity ☁️](https://levity.ltd/)
+## Currently 
+Find my designs at [Levity ☁️](https://levity.ltd/)
 
-## Previously: 
-- [LinkedIn}(https://www.linkedin.com/in/melissaleavenworth/)
+## Previously 
+- [LinkedIn)(https://www.linkedin.com/in/melissaleavenworth/)
 - Marketing at Live.Laugh.Colorado.
 - Partnerships and Events at The Comedy Fort
 - eCommerce Content Operations at Learning Advantage
 
 ## Just for Fun: 
-(https://melissalynnel.github.io/wimbly-biscuit-co/worldwide/)[Wimbly Biscuit Co.]
+[Wimbly Biscuit Co.](https://melissalynnel.github.io/wimbly-biscuit-co/worldwide/)
 
 
 🍎 AI Snack Club Member 
