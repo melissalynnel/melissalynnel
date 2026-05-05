@@ -1,12 +1,9 @@
 # [✨ Melissa Leavenworth ✨](https://melissalynnel.github.io/serenity/)
 
-🍎 AI Snack Club Member 
-
 ## Core Values 🌙
 integrity • humor • honesty 
 
-## Currently 
-Find my designs at [Levity ☁️](https://levity.ltd/)
+## [Levity ☁️](https://levity.ltd/)
 
 ## Previously 
 - [LinkedIn](https://www.linkedin.com/in/melissaleavenworth/)
