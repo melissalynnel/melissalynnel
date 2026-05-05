@@ -1,9 +1,9 @@
 # [✨ Melissa Leavenworth ✨](https://melissalynnel.github.io/serenity/)
 
-## Core Values 🌙
+## 🌙 Core Values
 integrity • humor • honesty 
 
-## [Levity ☁️](https://levity.ltd/)
+## [☁️ Levity](https://levity.ltd/)
 
 ## Previously 
 - [LinkedIn](https://www.linkedin.com/in/melissaleavenworth/)
@@ -11,5 +11,5 @@ integrity • humor • honesty
 - Partnerships and Events at The Comedy Fort
 - eCommerce Content Operations at Learning Advantage
 
-## Just for Fun: 
+## 🌐 Just for Fun: 
 [Wimbly Biscuit Co.](https://melissalynnel.github.io/wimbly-biscuit-co/worldwide/)
