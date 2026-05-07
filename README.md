@@ -3,6 +3,6 @@
 ## 🌙 Core Values
 integrity • humor • honesty 
 
-## [☁️ Levity](https://levity.ltd/)
+## [☁️ See My Designs](https://levity.ltd/)
 
-## 🌐 Just for Fun: [Wimbly Biscuit Co.](https://melissalynnel.github.io/wimbly-biscuit-co/worldwide/)
+## [🌐 Just for Fun](https://melissalynnel.github.io/wimbly-biscuit-co/worldwide/)
